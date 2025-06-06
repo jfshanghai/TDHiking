@@ -1,7 +1,7 @@
 # TRILHEAD DIRECT徒步路线
 
 ## ROUTES 1: Issaquah Alps
-* 该公交路线从轻轨1号线的MOUNT BAKER出发，经过2号线的South Bellevue站。首班车7:42，没半小时一班，最晚2:44。返回最晚6点多。
+* 该公交路线从轻轨1号线的MOUNT BAKER出发，经过2号线的South Bellevue站。首班车7:42，每半小时一班，最晚2:44。返回最晚6点多。
 
 * 公交比较准时，提前到了会在站点等到发车时间再出发。
 
