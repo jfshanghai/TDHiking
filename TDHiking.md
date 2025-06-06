@@ -19,3 +19,14 @@
 ## 从PPP站下车，走Chirico Taril到PPP，从high school trail下来（5mile，约3个小时）。
 * 上山看Mt Rainier 和Paragliding，风景不错，但是路比较陡。下山从high school trail下来比较缓和，好像下山也不会想看什么风景了
 ![alt text](image-3.png)
+
+* 风景：
+![alt text](image-4.png)
+![alt text](image-5.png)
+
+---
+
+## ROUTES 2: Mount Si
+
+* Trailheads: Mount Si, Mount Teneriffe, Little Si
+* 待更新
