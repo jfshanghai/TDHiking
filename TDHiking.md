@@ -15,6 +15,9 @@
 
 ![alt text](image-2.png)
 
+## High School 下来后，Rainier Trial 往北走8分钟，打卡Jakob Two Trees的巨人。
+![alt text](image-6.png)
+
 # 方案2：Poo Poo Point（PPP）
 ## 从PPP站下车，走Chirico Taril到PPP，从high school trail下来（5mile，约3个小时）。
 * 上山看Mt Rainier 和Paragliding，风景不错，但是路比较陡。下山从high school trail下来比较缓和，好像下山也不会想看什么风景了
