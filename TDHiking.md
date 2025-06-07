@@ -10,13 +10,15 @@
 
 ## 该线路经过的Trails包括：Margaret’s Way, Chirico Trail-Poo Poo Point, Squak Mountain, the High School Trail, and East Sunset Way
 
-# 方案1：Squak Mountain State Park Natural Area
-## 看地图：可以从Margaret’s Way上去，May Valley Loop Trailhead（SQUAK MOUNT STATE PARK站）下来（大约4.7mile， 用时两个半小时），或者从 Squak Mountain Access Trailhead（High School站）下来（大约6mile，三个小时）。也可以从May Valley Loop Trailhead上去，从High School那边下来（4.3mile，2多小时）。下面都是Trailhead Direct的公交站。
+# 方案1：穿越Squak Mountain State Park Natural Area
+## 路线类型：Shuttle
+## 从Margaret’s Way上去，从High School那边下来（6.8mile，3.5小时）。
 
-![alt text](image-2.png)
+![alt text](image-7.png)
 
 ## High School 下来后，Rainier Trial 往北走8分钟，打卡Jakob Two Trees的巨人。
 ![alt text](image-6.png)
+
 
 # 方案2：Poo Poo Point（PPP）
 ## 从PPP站下车，走Chirico Taril到PPP，从high school trail下来（5mile，约3个小时）。
