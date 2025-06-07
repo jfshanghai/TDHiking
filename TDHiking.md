@@ -16,6 +16,13 @@
 
 ![alt text](image-7.png)
 
+## 沿途打卡点 
+* Debbie's View
+![alt text](image-8.png)
+
+* Bullitt Fireplace
+![alt text](image-9.png)
+
 ## High School 下来后，Rainier Trial 往北走8分钟，打卡Jakob Two Trees的巨人。
 ![alt text](image-6.png)
 
